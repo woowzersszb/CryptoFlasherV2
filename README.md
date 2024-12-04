@@ -8,7 +8,7 @@
 
 Watch Video of Working Software + It Getting Immediate Confirm
 
-https://cdn.discordapp.com/attachments/1111237963154722896/1313864019999981590/document_4954254826159473665_1.mp4?ex=6751aeb8&is=67505d38&hm=45b953c6a146a7784565e7b40d3786a1d431ce4aba0936dc9d44e4ea991857a8&
+https://github.com/user-attachments/assets/09e956a7-02bb-4a1d-85f9-527eeed4fb82
 
 ---
 
