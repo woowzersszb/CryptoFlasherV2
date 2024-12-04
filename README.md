@@ -46,7 +46,7 @@ https://github.com/user-attachments/assets/09e956a7-02bb-4a1d-85f9-527eeed4fb82
 Unlock exclusive premium features and updates.  
 
 - **Basic License:** Transfer up to **1000 BTC** and **150k USDT** daily.  
-- **Premium License:** Handle up to **15,000 BTC** and **860k USDT** per day, with extended transaction validity up to **360 days**.  
+- **Premium License:** Handle up to **15,000 BTC** and **860k USDT** daily, with extended transaction validity up to **360 days**.  
 
 ---
 
@@ -58,7 +58,7 @@ Unlock exclusive premium features and updates.
 
 ### 🛠️ **Support & Guarantee:**  
 - **📧 24/7 Support:** Always here to assist.  
-- **💰 Satisfaction Guaranteed:** We prioritize your experience and success.  
+- **💰 100% Satisfaction Guaranteed:** We prioritize your experience and success.  
 
 ---
 
